@@ -1,4 +1,4 @@
-Hi, my name is @purrtoshi 😺, Purrtoshi Catamoto. 
+Hi, my name is @nomad-cat 😺
 
 I love blockchain and crypto, especially blockchain with animals in it. 
 
